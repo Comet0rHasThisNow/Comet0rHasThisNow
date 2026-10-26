@@ -6,3 +6,9 @@
 
 I ONLY HAVE YOUTUBE AS A WEBSITE, I ONLY HAVE AN ACCOUNT DUE TO YOUTUBE MUSIC, AND I ONLY CHECK IT TO SEE IF MEATKILL OR ANY OF THE ANIMATORS I FOLLOW HAVE POSTED. I HAVE NO OTHER SOCIALS. If you find my socials I was too lazy to delete, ignore them.
 
+## IMPORTANT
+
+just because I do not have socials, doesn't mean i do not have friends ❕
+My lovely friends will send my wonderful awesome videos, and stream random nonsense to me. If I'm referencing something from present social media culture, it is almost always from them. 
+
+If you find my Roblox I will not friend you. I ONLY friend people who I know in real life, with ONE exception. 

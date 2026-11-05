@@ -5,5 +5,5 @@
 ## ⚠️I AM PARANOID⚠️ I NO LONGER HAVE ANY SOCIAL MEDIA‼️
 
 I ONLY HAVE A YOUTUBE ACCOUNT DUE TO YOUTUBE MUSIC. If you find my socials I was too lazy to delete, ignore them.
-My friends are my reference point for pop culture
+My friends are my reference point for pop culture.
 I don't see my github as social media because I'm using it as a bio for ponytown
